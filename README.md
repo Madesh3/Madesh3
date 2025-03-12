@@ -1,9 +1,10 @@
 # 🚀 Madesh Thevar | Innovator & Software Engineer  
 **Entrepreneur | AI & Web Developer | Visionary**  
 
-Hi there! I’m a software engineer passionate about AI—not to replace you, but to make you 100x smarter and more efficient. I’m always cooking up something cool!
+Hi there! I’m a software engineer passionate about AI—not to replace you, but to make you 100x smarter and more efficient. 
 
 
+I’m always cooking up something cool!
 
 
 ---
