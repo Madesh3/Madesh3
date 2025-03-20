@@ -17,6 +17,6 @@ I’m always cooking up something 🧑‍🍳!
 
 
 ## 📫 Let's Connect!  
-💼 [Portfolio](https://madeshthevar.com)  
-🐦 [Twitter/X](https://twitter.com/MadeshThevar3)  
-📩 [LinkedIn](https://linkedin.com/in/madesh3)  
+[Portfolio](https://madeshthevar.com)  
+[Twitter/X](https://twitter.com/MadeshThevar3)  
+[LinkedIn](https://linkedin.com/in/madesh3)  
