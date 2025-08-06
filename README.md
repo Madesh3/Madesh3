@@ -6,7 +6,7 @@ Hi there! I’m a software engineer passionate about AI not to replace you, but 
 
 I’m always cooking up something 🧑‍🍳!
 
-read?smh 
+
 ---
 
 ## 🔥 What I'm Working On  
