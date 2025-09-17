@@ -18,3 +18,6 @@ I’m always cooking up something 🧑‍🍳!!
 [Portfolio](https://madeshthevar.com)  
 [Twitter/X](https://twitter.com/MadeshThevar3)  
 [LinkedIn](https://linkedin.com/in/madesh3)  
+
+
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=First+line+of+text;Second+line+of+text)](https://git.io/typing-svg)
