@@ -3,14 +3,12 @@
 
 
 
-I’m always cooking up something 🧑‍🍳!!
+😎🕺🤟🧑‍🍳
 
 
 ---
 
-## 🔥 What I'm Working On  
 
-- 🎯 **Always building** – New ideas keep me up at nightttt
 
 
 ## 📫 Let's Connect!  
