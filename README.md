@@ -20,4 +20,4 @@ I’m always cooking up something 🧑‍🍳!!
 [LinkedIn](https://linkedin.com/in/madesh3)  
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=hi,there 🤟;Second+line+of+text)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=hi,there; I am Madesh :))](https://git.io/typing-svg)
