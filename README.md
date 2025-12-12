@@ -12,8 +12,8 @@
 
 
 ## 📫 Let's Connect!  
-[Portfolio](https://madeshthevar.com)  
-[Twitter/X](https://twitter.com/MadeshThevar3)  
-[LinkedIn](https://linkedin.com/in/madesh3)  
+Check out what I am building 
+https://goldenarc.ca
+
 
 
