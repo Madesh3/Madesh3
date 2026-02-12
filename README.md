@@ -11,7 +11,7 @@
 
 
 
-## 📫 Let's Connect!  
+## 🚀 Current Projects 
 Check out what I am building 
 https://goldenarc.ca
 
