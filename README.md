@@ -6,7 +6,7 @@
 😎🕺🤟🧑‍🍳🥶 🌁 
 
 
-**[Madesh](https://www.madeshthevar.com)**
+**[About me](https://www.madeshthevar.com)**
 
 ---
 
